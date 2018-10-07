@@ -1,3 +1,3 @@
-# Welcome to my blog
+HI,  This the blog for Rich Consults and my name is Rich ordahl.
 
 I'm glad you are here. I plan to talk about ...
